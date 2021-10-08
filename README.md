@@ -1,6 +1,3 @@
-This project will be help me to motivate my self when there is no one. Thanks in advance niggas. c yaaa. believe in magicc <3
-
-
 # Greetings
 
 What's up homies?
